@@ -1,4 +1,4 @@
-# Hi! I'm Luisina Rodríguez 👋
+# Hi! I'm Luisina Rodriguez 👋
 
 Food Technology Engineer | Quality & Operations | Data Analytics
 
